@@ -1,5 +1,5 @@
 
-![logo](./Tutus%20Media%20-%20360%20°%20Digital%20Media%20Planning%20and%20Purchasing%20Agency_files/2-tutus_logo.png)
+![logo](https://tutusmedia.com/wp-content/uploads/2020/03/tutus_logo-opt-1.png)
 
 WHAT WE DO? 
 -----------
