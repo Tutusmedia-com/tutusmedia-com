@@ -27,8 +27,8 @@ VISUAL MEDIA
 
 ### Media Purchasing [**](https://tutusmedia.com/en/media-purchasing/)
 
-We offer media purchasing\
- services for National Turkish\
+We offer media purchasing
+ services for National Turkish
  television channels in Europe.
 
 
@@ -53,7 +53,7 @@ DIGITAL MEDIA AND SEO AGENCY
 ### SEO [**](https://tutusmedia.com/en/seo/)
 
 
-TUTUS Media does  not approach to your\
+TUTUS Media does  not approach to your
  web page and your  brand identity with automatic  views. Along with
  SEO, it allows  you to control the tops in the search engines.
 
@@ -103,10 +103,10 @@ PROGRAMMING
 
 ### Web design and programming [**](https://tutusmedia.com/en/web-design-and-programming/)
 
-Your website is a window opening\
- to the world. As Tutus Media,\
- we design your Web site in a\
- completely manageable format\
+Your website is a window opening
+ to the world. As Tutus Media,
+ we design your Web site in a
+ completely manageable format
  that fits your needs.
 
 
@@ -122,11 +122,7 @@ develop.
 
 ### Mobile Applications [**](https://tutusmedia.com/en/mobile-applications/)
 
-Today, the use of smartphones
- is increasing every day. Now even
- more than 60% of accesses to web
- sites are from mobile. Now mobile
- solutions have become a basic necessity.
+Today, the use of smartphones is increasing every day. Now even more than 60% of accesses to web sites are from mobile. Now mobile solutions have become a basic necessity.
 
 * * * * *
 
