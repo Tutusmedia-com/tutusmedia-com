@@ -25,21 +25,21 @@ VISUAL MEDIA
 
 
 
-### Media Purchasing [**](https://tutusmedia.com/en/media-purchasing/)
+### Media Purchasing
 
 We offer media purchasing
  services for National Turkish
  television channels in Europe.
 
 
-### Media Planning  [**](https://tutusmedia.com/en/media-planning/)
+### Media Planning 
 
 The aim of media planning is to enable you to effectively convey the
 advertising message to the target audience.
 
 
 
-### Media Tracking  [**](https://tutusmedia.com/en/media-tracking/)
+### Media Tracking  
 
 We provide recording and classification of published advertisements and
 archiving of analysis and reports.
@@ -50,7 +50,7 @@ DIGITAL MEDIA AND SEO AGENCY
 ============================
 
 
-### SEO [**](https://tutusmedia.com/en/seo/)
+### SEO 
 
 
 TUTUS Media does  not approach to your
@@ -59,7 +59,7 @@ TUTUS Media does  not approach to your
 
 
 
-### Social Media [**](https://tutusmedia.com/en/social-media/)
+### Social Media
 
 As Tutus Media and along with our expert team, we are developing
 concepts and managing your social media networks we are developing
@@ -68,7 +68,7 @@ Twitter, Google+, Instagram, Youtube, Linkedin"
 
 
 
-### Adwords  [**](https://tutusmedia.com/en/adwords/)
+### Adwords
 
 Tutus Media,
  a Germany-based
@@ -81,7 +81,7 @@ Tutus Media,
  with an expert team
 
 
-### Newsletter   [**](https://tutusmedia.com/en/newsletter/)
+### Newsletter  
 
 The newsletter
  shares, undoubtedly
@@ -101,7 +101,7 @@ PROGRAMMING
 
 
 
-### Web design and programming [**](https://tutusmedia.com/en/web-design-and-programming/)
+### Web design and programming 
 
 Your website is a window opening
  to the world. As Tutus Media,
@@ -111,7 +111,7 @@ Your website is a window opening
 
 
 
-### E-Commerce Site [**](https://tutusmedia.com/en/e-commerce-site/)
+### E-Commerce Site
 
 The rapid development of the internet has made it possible for
 entrepreneurs to have a lot of internet creativity. Now all
@@ -120,7 +120,7 @@ develop.
 
 
 
-### Mobile Applications [**](https://tutusmedia.com/en/mobile-applications/)
+### Mobile Applications 
 
 Today, the use of smartphones is increasing every day. Now even more than 60% of accesses to web sites are from mobile. Now mobile solutions have become a basic necessity.
 
@@ -133,7 +133,7 @@ CREATIVE
 
 
 
-### Production [**](https://tutusmedia.com/en/production/)
+### Production 
 
 As Tutus Media, we are delivering effective solutions with our unique
 production process as an experienced player in Europe with more than 10
@@ -141,7 +141,7 @@ years of experience in production business.
 
 
 
-### Design  [**](https://tutusmedia.com/en/design/)
+### Design  
 
 Another feature that distinguishes us from other agencies in the field
 of design is our dominance and experience in the European market as well
@@ -149,7 +149,7 @@ as our creativity.
 
 
 
-### Photography [**](https://tutusmedia.com/en/photography/)
+### Photography
 
 Another way to draw out the strengths of your brand is photo. With
 advertising photography, you can easily accomplish your marketing
